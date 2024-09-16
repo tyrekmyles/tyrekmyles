@@ -1,5 +1,5 @@
 ## Hi there 👋
-- 🔭 I’m currently working on learning becoming the greatest version of myself
+- 🔭 I’m currently working on becoming the greatest version of myself
 - 🌱 I’m currently learning everything there is to know about data and how to use it
 - 👯 I’m looking to collaborate on anything and everything I could be of use on
 - 😄 Pronouns: He/Him
